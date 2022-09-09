@@ -2,7 +2,7 @@
 ## Plan de présentation
 
 ### Présentation
-Mon nom est Joshua Gonzalez-Barrera. J'ai 17 ans et j'aime beaucoup le montage vidéo et tout ce qui est relié à l'animation.
+Mon nom est Joshua Gonzalez-Barrera. J'ai 17 ans et j'aime beaucoup le montage vidéo et tout ce qui est relié à l'animation. Je fais du montage sur After Effects. J'espère pouvoir apprendre des programmes 3d (Blender, Cinema 4d, Maya, etc.) et apprendre aussi de l'animation.
 
 ### Intérêts dans le domaine
 Mes intérets dans le domaine sont le montage video et l'animation 2d/3d 
