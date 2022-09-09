@@ -2,13 +2,13 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+Mes intérets dans le domaine sont le montage video et l'animation 2d/3d 
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Monteur de film/vidéo, artiste vfx
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
